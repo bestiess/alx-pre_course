@@ -1,1 +1,1 @@
-Consistence with discipline
+Consistency with discipline
